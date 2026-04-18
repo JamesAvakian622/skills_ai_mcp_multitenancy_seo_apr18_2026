@@ -1,1 +1,1 @@
-# skills_ai_mcp_multitenancy_seo_apr18_2026
+# all skills, April 18, 2026
